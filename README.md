@@ -1,4 +1,4 @@
-### Hi there, I'm Rahat - aka [codeSTACKr][website] 👋
+### Hi there, I'm Rahat - [Sabik Rahat][website] 👋
 
 
 ## I'm a Student, Self-Learner and Developer!!
